@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+I enjoy these things
+* My Wife
+* Games including
+* D&D
+* World of Warcraft
+* Puzzles
+* Learning to do new things
